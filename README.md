@@ -7,4 +7,4 @@
 
 - Check out my portfolio! [ThanathonYichaturat.github.io](https://thanathonyichaturat.github.io/)
 
-- Reach me ThanathonYichaturat@gmail.com
+- Reach me thanathonyichaturat@gmail.com
