@@ -5,6 +5,6 @@
 
 - I am committed to improving myself every day
 
-- Check out my portfolio! [ThanathonYichaturat.github.io](https://adisakdadjam.github.io/)
+- Check out my portfolio! [ThanathonYichaturat.github.io](https://thanathonyichaturat.github.io/)
 
 - Reach me ThanathonYichaturat@gmail.com
